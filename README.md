@@ -10,4 +10,5 @@
 Django207/Django207 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-https://tenor.com/pt-BR/view/kevin-levrone-kevin-levrone-edit-sekushivii-kevin-levrone-bodybuilder-gif-4372599983515554326
+
+![](https://tenor.com/pt-BR/view/kevin-levrone-kevin-levrone-edit-sekushivii-kevin-levrone-bodybuilder-gif-4372599983515554326)
