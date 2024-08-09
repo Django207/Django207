@@ -7,3 +7,4 @@
 - ⚡ Fun fact: ... Nenhum, apenas vivendo
 
 ![](https://tenor.com/pt-BR/view/kevin-levrone-kevin-levrone-edit-sekushivii-kevin-levrone-bodybuilder-gif-4372599983515554326)
+chttps://www.meucurriculoperfeito.com.br/criar-curriculo/curriculo-final
